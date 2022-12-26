@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Wibucode
 - 🤔 I’m looking for help with Teacher di Youtube
 - 💬 Ask me about 
-- 📫 How to reach me: Facebook "Generadi Ronggolawe Tuban"
+- 📫 How to reach me: Facebook "Generasi Ronggolawe Tuban"
 - ⚡ Fun fact: Entahlah men, gw gak punya fakta yang menyenangkan
