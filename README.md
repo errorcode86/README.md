@@ -7,6 +7,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Laravel and JS Based
 - 👯 I’m looking to collaborate on Wibucode
 - 🤔 I’m looking for help with Teacher di Youtube
-- 💬 Ask me about 
+- 💬 Ask me about Serah Lah
 - 📫 How to reach me: Facebook "Generasi Ronggolawe Tuban"
 - ⚡ Fun fact: Entahlah men, gw gak punya fakta yang menyenangkan
+- 💵 Donate : mau donate sini dana 085749892022 A/N MUIMAH
